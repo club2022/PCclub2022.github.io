@@ -1,1 +1,1 @@
-# PCclub2022.github.io
+# kokusai2022bunkasai/tablet.github.io
